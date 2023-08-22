@@ -1,0 +1,5 @@
+- 👋 Hi, I'm Ximena Justiniano Luján, Development Scholar at the Domingo Savio Private University
+- 👀 I am interested in new technologies
+- 🌱 I am currently learning different work tools
+- 💞️ I seek to grow professionally
+- 📫 How to contact me: ximenajustinianolujan73@gmail.com
